@@ -6,3 +6,5 @@ hiii it's me the cream soda blue girl ^u^
 
 <a href="https://www.glitter-graphics.com"><img src="http://dl2.glitter-graphics.net/pub/2531/2531912nc9olzgz65.gif" width=289 height=410 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
 <a href="https://www.glitter-graphics.com"><img src="http://dl8.glitter-graphics.net/pub/2787/2787558jorlte5t0m.gif" width=350 height=200 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
+
+<a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/1391/1391337jpbstwoniz.jpg" width=400 height=310 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
